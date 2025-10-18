@@ -8,3 +8,6 @@ Politics:
 ![news website2](https://user-images.githubusercontent.com/93108145/237021913-815f022e-db45-4294-a1c0-e7060f41fb94.jpg)
 Sport:
 ![news website3](https://user-images.githubusercontent.com/93108145/237021921-9f038796-a26d-4061-986c-56ea4806396b.jpg)
+
+
+sstar it if you like
